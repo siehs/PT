@@ -14,5 +14,6 @@ Ranfren (low activity), Omori, Soul Eater, Persona series, Danganronpa, YTTD, Ma
 **Other Notes:**  
 - Sometimes lurking in *C+H* (not ACNH). Startle easily — DM first.  
 - *w2i* welcome, but no reply = ghosting unintentionally.  
+- ## **Do not Copy me**
 
 **Hit me up if you vibe.**
