@@ -1,19 +1,6 @@
-# PT
+# <span style="color:#ff5555">PT</span>
 ——
-## **About Me**  
-**Main Fandom:** *Naruto*  
-**Favorites:** Yakui, Sakura, Maka, Crona, Yenisei, Navia, Vill-V, Vflower, Sasuke, Naruto, Miku (Brazil), **Rei Ayanami**.  
-**Ships:** *SasuNaru* / *InoSaku* only. **Hard no on SasuSaku**—don't test me.  
-
-**Active/Mentioned Fandoms:**  
-Ranfren (low activity), Omori, Soul Eater, Persona series, Danganronpa, YTTD, Madoka Magica, Lain, Evangelion.  
-*(Past: Reverse: 1999 — dropped)*  
-
-**Anti:** *MHA*, *K-Pop: Demon Hunters*.  
-
-**Other Notes:**  
-- Sometimes lurking in *C+H* (not ACNH). Startle easily — DM first.  
-- *w2i* welcome, but no reply = ghosting unintentionally.  
-- ## **Do not Copy me**
-
-**Hit me up if you vibe.**
+## <span style="color:#55ffff">**About Me**</span>  
+**<span style="color:#ffaa00">Main Fandom:</span>** *<span style="color:#ff55ff">Naruto</span>*  
+**<span style="color:#ffaa00">Favorites:</span>** <span style="color:#55ff55">Yakui</span>, <span style="color:#ff9999">Sakura</span>, <span style="color:#ff5555">Maka</span>, <span style="color:#9999ff">Crona</span>, <span style="color:#55ffff">Yenisei</span>, <span style="color:#ff55ff">Navia</span>, <span style="color:#ffaa00">Vill-V</span>, <span style="color:#55ff55">Vflower</span>, <span style="color:#9999ff">Sasuke</span>, <span style="color:#ffaa00">Naruto</span>, <span style="color:#55ffff">Miku (Brazil)</span>, **<span style="color:#ff5555">Rei Ayanami</span>**.  
+**<span style="color:#ffaa00">Ships:</span>** *<span style="color:#9999ff">SasuNaru</span>* / *<span style="color:#ff9999">InoSaku</span>* only
