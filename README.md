@@ -9,7 +9,7 @@
 <span style="color:#ffaa00">Ranfren</span> (low activity), <span style="color:#55ff55">Omori</span>, <span style="color:#ff5555">Soul Eater</span>, <span style="color:#9999ff">Persona series</span>, <span style="color:#ff55ff">Danganronpa</span>, <span style="color:#55ffff">YTTD</span>, <span style="color:#ff9999">Madoka Magica</span>, <span style="color:#9999ff">Lain</span>, <span style="color:#ff5555">Evangelion</span>.  
 *(<span style="color:#aaaaaa">Past: Reverse: 1999 — dropped</span>)*  
 
-**<span style="color:#ff5555">Anti:</span>** *<span style="color:#aaaaaa">MHA</span>*, *<span style="color:#aaaaaa">K-Pop: Demon Hunters</span>*.  
+**<span style="color:#ff5555">Anti:</span>** *<span style="color:#aaaaaa">MHA</span>*, *<span style="color:#aaaaaa">K-Pop: Demon Hunters</span>*, *<span style="color:#aaaaaa">UT圈 (Undertale)</span>*, *<span style="color:#aaaaaa">MCYT</span>*, *<span style="color:#aaaaaa">CH (Hetalia)</span>*.  
 
 ## <span style="color:#55ffff">**Other Notes:**</span>  
 - Sometimes lurking in *<span style="color:#55ff55">C+H</span>* (not ACNH). <span style="color:#ff9999">Startle easily</span> — DM first.  
