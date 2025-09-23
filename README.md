@@ -3,7 +3,7 @@
 ## **About Me**  
 **Main Fandom:** *Naruto*  
 **Favorites:** Yakui, Sakura, Maka, Crona, Yenisei, Navia, Vill-V, Vflower, Sasuke, Naruto, Miku (Brazil), **Rei Ayanami**.  
-**Ships:** *SasuNaru* / *InoSaku* / *obkk* only. **<span style="color:#ff5555">Hard no on SasuSaku</span>**—don't test me.  
+**Ships:** *SasuNaru* / *InoSaku* / *obkk*  **<span style="color:#ff5555">Hard no on SasuSaku</span>**—don't test me.  
 
 ## **Active/Mentioned Fandoms:**  
 Ranfren (low activity), Omori, Soul Eater, Persona series, Danganronpa, YTTD, Madoka Magica, Lain, Evangelion.  
