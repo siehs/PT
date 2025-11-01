@@ -19,4 +19,8 @@
 - 𝔔𝔲𝔦𝔢𝔱 𝔴𝔦𝔱𝔥 𝔰𝔱𝔯𝔞𝔫𝔤𝔢𝔯𝔰, 𝔬𝔲𝔱𝔤𝔬𝔦𝔫𝔤 𝔴𝔦𝔱𝔥 𝔣𝔯𝔦𝔢𝔫𝔡𝔰  
 
 𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔠𝔥𝔞𝔱 𝔞𝔫𝔡 𝔪𝔞𝔨𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰!
-![IMG_20251019_024825](https://github.com/user-attachments/assets/9f395eb5-e886-4cc1-b566-a817beca2895)
+![IMG_20251101_230515](https://github.com/user-attachments/assets/380259f5-0524-46c6-9e8c-3ceba00a4318)
+
+![IMG_20251101_232253](https://github.com/user-attachments/assets/bed3d820-8958-4412-816f-3d735f826f4b)
+![IMG_20251101_232242](https://github.com/user-attachments/assets/64915122-2a6c-455c-9490-fa4211b10275)
+![IMG_20251101_232137](https://github.com/user-attachments/assets/6e6496c8-0f28-49e3-a68e-ef55da21e58c)
